@@ -9,7 +9,7 @@ the prettiest sp6 you've ever seen !! <img width="20" height="20" alt="6c58d061"
 
 
 
-c + h freely PLEASE !!
+                                     c + h freely PLEASE !!
 
 
 <img width="120" height="120" alt="80c95589-3ef3-495c-a6e8-66a1e56ba73f" src="https://github.com/user-attachments/assets/2d4692ab-4939-4d55-bdd8-843a7d566399" />
@@ -38,7 +38,9 @@ c + h freely PLEASE !!
 
 
       
-say hi
+                                         say hi
+
+
 
 <img width="164" height="128" alt="pony-town-sp6 - w2i   c+h freely ^^-laugh-head-blinking-padded-4x" src="https://github.com/user-attachments/assets/c89ef7eb-739c-48ef-b531-87574b19e705" />
 

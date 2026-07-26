@@ -8,12 +8,11 @@ the prettiest sp6 you've ever seen !! <img width="20" height="20" alt="6c58d061"
 ,, ! <img width="20" height="20" alt="5f44dd7e" src="https://github.com/user-attachments/assets/ef2fc97c-0601-44c1-817e-83b61a41365a" />
 
 
+<p align="center">c+h freely PLEASE !!</p>
 
-                                     c + h freely PLEASE !!
 
 
-<img width="120" height="120" alt="80c95589-3ef3-495c-a6e8-66a1e56ba73f" src="https://github.com/user-attachments/assets/2d4692ab-4939-4d55-bdd8-843a7d566399" />
-
+<p align="center"><img width="120" height="120" alt="80c95589-3ef3-495c-a6e8-66a1e56ba73f" src="https://github.com/user-attachments/assets/2d4692ab-4939-4d55-bdd8-843a7d566399" /></p>
 
 !! 
 
@@ -33,14 +32,10 @@ the prettiest sp6 you've ever seen !! <img width="20" height="20" alt="6c58d061"
 <img width="99" height="56" alt="tumblr_pe3ahvHP4n1xsk4lxo2_100" src="https://github.com/user-attachments/assets/14fd963a-212e-473f-9fdd-543dd58032c6" />
 <img width="99" height="56" alt="tumblr_77e8e6c0863d13eee28b356cc76fa05a_fca6bca8_400" src="https://github.com/user-attachments/assets/d5c47f2b-6c04-42ed-a636-9a1813884438" />
 <img width="99" height="56" alt="tumblr_bef762433ebc23a71f9a255725ffa727_a1498d9e_250" src="https://github.com/user-attachments/assets/3c73408e-9d75-41b5-926a-36b809cc8274" />
-     
+
+
+<p align="center">say hi to bebeh sp6</p>
 
 
 
-      
-                                         say hi
-
-
-
-<img width="164" height="128" alt="pony-town-sp6 - w2i   c+h freely ^^-laugh-head-blinking-padded-4x" src="https://github.com/user-attachments/assets/c89ef7eb-739c-48ef-b531-87574b19e705" />
-
+<p align="center"><img width="164" height="128" alt="pony-town-sp6 - w2i   c+h freely ^^-laugh-head-blinking-padded-4x" src="https://github.com/user-attachments/assets/c89ef7eb-739c-48ef-b531-87574b19e705" /></p>

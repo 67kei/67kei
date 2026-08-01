@@ -9,7 +9,9 @@ the prettiest sp6 you've ever seen !! <img width="20" height="20" alt="6c58d061"
 <br>
 <br>
 
-,, ! ಄  <img width="20" height="20" alt="5f44dd7e" src="https://github.com/user-attachments/assets/ef2fc97c-0601-44c1-817e-83b61a41365a" />
+,, ! ಄  <img width="20" height="20" alt="5f44dd7e" src="https://github.com/user-attachments/assets/ef2fc97c-0601-44c1-817e-83b61a41365a" />  
+<br>
+![](https://komarev.com/ghpvc/?username=your-github-username&label=pawns+imanipulated+intoseeingmy+git&color=615fcf&style=plastic&abbreviated=true)
 
 <br>
 

@@ -2,20 +2,25 @@
 <p align="center">
   <a
 </p>
-the prettiest sp6 you've ever seen !! <img width="20" height="20" alt="6c58d061" src="https://github.com/user-attachments/assets/384a119b-34f1-4887-8f6e-cdeec10cd8bc" />
+<a <p align="center"> <img src="https://readme-typing-svg.demolab.com?font=Oswald&size=40&pause=1000&color=4A6BF7&width=450&height=60&lines=Who+am+i%3F;You+dont+need+to+know+!!" alt="Typing SVG" /></a>
+<br>
+<img width="20" height="20" alt="6c58d061" src="https://github.com/user-attachments/assets/384a119b-34f1-4887-8f6e-cdeec10cd8bc" />
 
 <br>
 <br>
 <br>
 <br>
 
-,, ! ಄  <img width="20" height="20" alt="5f44dd7e" src="https://github.com/user-attachments/assets/ef2fc97c-0601-44c1-817e-83b61a41365a" />  
-<br>
-![](https://komarev.com/ghpvc/?username=67kei&label=qts&color=615fcf&style=plastic&abbreviated=true)
+
+<p align="center"> $\color{#5A8BE0}{\text{w2i always !! , if i say dniuf or dniucf or other then dont, or if i dont put w2i you can w2i me !! i cant prob put w2i bc of the name character limits}}$
+
+
+<br>![](https://komarev.com/ghpvc/?username=67kei&label=qts&color=615fcf&style=plastic&abbreviated=true)
 
 <br>
 
-<p align="center">c+h freely PLEASE !!</p>
+<p align="center"> $\color{#2968D6}{\text{ c+h enc always plEASE!!11!1!}}$
+
 
 <br>
 <br>
